@@ -2,7 +2,7 @@
 **Hello world! I’m GoldThruster**.  
 In the case you are curios as me, and you'd like to now how I came up with this nickname, well...  
 I basically though to the most stupid thing for a name possible 😂 => "Thruster"🚀  
-And then, though I need to give myself some value too, not jsut show my dumbness 😅 => "Gold"🥇
+And then, though I need to give myself some value too, not just show my dumbness 😅 => "Gold"🥇
 
 🦸‍♂️ **Real life**:  
 In real life I'm just an italian(🇮🇹) **teenager/student** who likes to code in his freetime 
